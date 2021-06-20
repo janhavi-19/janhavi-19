@@ -8,7 +8,7 @@ I am a dedicated towards my work. I want to make use of my ability and skills to
 
 📫 How to reach me:
 
-CONTACT ME: 
+CONTACT ME: https://www.linkedin.com/in/janhavi-kalwar-7609941b9
 
 MY WEBSITE: 
 
