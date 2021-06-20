@@ -14,7 +14,7 @@ MY WEBSITE:
 
 MY CV: 
 
-DEV Community: 
+DEV Community: https://dev.to/janhavi19
 <!--
 **janhavi-19/janhavi-19** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
