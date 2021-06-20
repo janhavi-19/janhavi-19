@@ -2,8 +2,7 @@
 Welcome to my Github!
 
 About Me:
-
-
+I am a dedicated towards my work. I want to make use of my ability and skills to improve lives of people around the world.
 
 📚 I’m in my Third year of Information Technology Engineering.
 
