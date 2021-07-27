@@ -6,7 +6,7 @@ I am a dedicated towards my work. I want to make use of my ability and skills to
 
 📚 I’m in my Third year of Information Technology Engineering.
 
-📫 How to reach me:
+📫 How to reach me: janhavikalwar19@gmail.com
 
 CONTACT ME: https://www.linkedin.com/in/janhavi-kalwar-7609941b9
 
