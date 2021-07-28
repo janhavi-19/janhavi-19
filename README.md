@@ -10,7 +10,7 @@ I am a dedicated towards my work. I want to make use of my ability and skills to
 
 CONTACT ME: https://www.linkedin.com/in/janhavi-kalwar-7609941b9
 
-MY WEBSITE: 
+MY WEBSITE: https://janhavi-19.github.io/
 
 MY CV: 
 
